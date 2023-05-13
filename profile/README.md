@@ -1,2 +1,4 @@
 # yian is better than bryan
-its jsut fax
+its just fax\
+this is a organization to organize a a very large amount of proxies to be sent on a very specific date, so be on the lookout!\
+nothing will be shown yet, but everything is being constantly updated and worked on.\
